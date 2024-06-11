@@ -1,1 +1,0 @@
-# cifrovoypsiholog.github.io
